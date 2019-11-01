@@ -4,12 +4,12 @@
 - fear of unknown is the most common cause
 - pet peeves are stupid, get over them
 - physical exercise effects everything you do. Get active and stay active.
-- the truly couragous do not like in anxiety from morning to night; they are calm because they know who they are.
-- peaceful atitude because of acceptance
-- adaptibility embraces the spirit of innovation
+- the truly courageous do not like in anxiety from morning to night; they are calm because they know who they are.
+- peaceful attitude because of acceptance
+- adaptability embraces the spirit of innovation
 - innovation as a style of leadership; two way system of communication is required
 - innovation also means failure; learn from it and move on
-- do not remain stagnent
+- do not remain stagnant
 - know yourself and your team, seek self improvement, set the example
 - assure the task is understood, supervised, and accomplished; work towards decentralized command
 - seek responsibility

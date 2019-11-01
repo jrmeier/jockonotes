@@ -3,5 +3,5 @@
 - always challenge yourself
 - recover when needed
 - check your ego often
-- stepback and observe situations to help remove bias
-- become the dicipline
+- step back and observe situations to help remove bias
+- become the discipline
